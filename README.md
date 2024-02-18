@@ -7,4 +7,3 @@ Silahkan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Katarina Yenny, [Kyennz.or.id](https://ky.or.id).
-* Katarina Zebua, [Linkedin](https://www.linkedin.com/in/katarina-zebua/).
